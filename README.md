@@ -39,7 +39,7 @@ Have a look ⬇️
 
 ##INFORMATION:
 ## NAME    -   AHMED MOHAMED (ZEKO)  
-## Akash   -   +201030093285
+## NUMBER  -   +201030093285
 ## FACEBOOK-   AHMEDZEKO1O
 ## DM      -   @ZEKO_EG
 ## CH      -   @GOERMASR
